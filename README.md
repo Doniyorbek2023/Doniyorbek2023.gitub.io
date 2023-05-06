@@ -1,2 +1,2 @@
-# Doniyorbek2023.gitub.io
+# Doniyorbek Islomov
 First Work
